@@ -9,4 +9,4 @@ Tenho grande interesse na área de Dados 📊, busco um estágio e estou focando
 
 📊 Excel
 
-Estou sempre buscando aprender mais e desenvolver minhas habilidades para atuar como analista de dados no futuro 🚀.
+Estou sempre buscando aprender mais e desenvolver minhas habilidades para atuar como analista de dados no futuro 🚀..
